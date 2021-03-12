@@ -107,4 +107,4 @@ You may only resolve Disputes with Be Anything on an individual basis, and may n
 We are always open to your feedback and suggestions about Be Anything. Please email us at admin@beanything.co at any time.
 
 ## Entire Agreement
-These Terms (and any other policies we refer to in this document) make up the entire agreement between you and Be Aything, Inc., and supersede any prior agreement. If any part of these Terms are found to be unenforceable by a court or arbitrator, the remaining parts will remain in full force and effect. If Be Anything fails to enforce any part of these Terms, such a failure does not constitute a waiver
+These Terms (and any other policies we refer to in this document) make up the entire agreement between you and Be Anything, Inc., and supersede any prior agreement. If any part of these Terms are found to be unenforceable by a court or arbitrator, the remaining parts will remain in full force and effect. If Be Anything fails to enforce any part of these Terms, such a failure does not constitute a waiver
